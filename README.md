@@ -15,10 +15,10 @@ Patient-centered care approach
 
 For more information about our services, visit our official website:
 
-👉 [[](https://saharawesturgentcare.com/)]
+👉 [[Please check this:](https://saharawesturgentcare.com/)]
 
 🔗 Additional Resources
 
 You can also explore more about our healthcare services through our cloud-based pages and resources:
 
-👉 [[](https://sites.google.com/view/accidental-care-las-vegas/home)]
+👉 [[Check more by clicking this:](https://sites.google.com/view/accidental-care-las-vegas/home)]
